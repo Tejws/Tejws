@@ -8,6 +8,7 @@
 - 📫 How to reach me **tejasingle46@gmail.com**
 
 <h3 align="left">Connect with me: @tejws on instagram</h3>
+<h3 align="left"> tejasingle46@gmail.com</h3>
 <p align="left">
 </p>
 
