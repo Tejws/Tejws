@@ -5,7 +5,7 @@
 
 
 
-- How to reach me :  **tejasingle46@gmail.com**
+- How to reach me :   **tejasingle46@gmail.com**
 
 
 <h3 align="left">  tejasingle46@gmail.com</h3>
