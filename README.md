@@ -2,7 +2,7 @@
 <h3 align="center">A  passionate full stack dev</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=tejws&label=Profile%20views&color=0e75b6&style=flat" alt="tejws" /> </p>
-
+  
 
 How to reach me :   **tejasingle46@gmail.com**
 
