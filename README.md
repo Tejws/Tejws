@@ -8,7 +8,7 @@ How to reach me :   **tejasingle46@gmail.com**
   
 
 <h3 align="left">  tejasingle46@gmail.com</h3>    
-<a href ="https://www.linkedin.com/in/tejas-ingle-022b022a7/">Tejas Ingle</p> 
+<a href ="[https://www.linkedin.com/in/tejas-ingle-022b022a7/](https://www.linkedin.com/in/tejas-ingle-46033531b/?trk=opento_sprofile_topcard)">Tejas Ingle</p> 
 </p>  
 
 <h3 align="left">Languages: </h3>
